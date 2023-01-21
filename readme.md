@@ -1,4 +1,4 @@
-<script>
+
 
 #Peanut Butter and Jelly (or Jam for my
 buddies in the UK)
@@ -16,4 +16,3 @@ buddies in the UK)
 
 
 
-</script>
