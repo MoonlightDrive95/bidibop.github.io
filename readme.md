@@ -1,4 +1,5 @@
 
+<img src="C:\Users\SONJA JACINTO\OneDrive\Desktop\MITWeek1\bidibop.github.io\last-minute-couples-costume-peanut-butter-and-jelly-sandwich-212-1024x683.jpg>
 
 # Peanut Butter and Jelly (or Jam for my
 # buddy in the UK)
